@@ -1,0 +1,1 @@
+# trucchi-OSM-Manager-di-Calcio
